@@ -38,5 +38,5 @@ Step 3.
 
 
 
-For further information contact Timothy Wong at mailto:timothywongkaye@gmail.com 
+For further information contact Timothy Wong at timothywongkaye@gmail.com 
 
